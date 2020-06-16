@@ -1,2 +1,1 @@
-"# dicee-challange" 
-"# dicee-challange" 
+Emekleriniz için teşekkür ederiz.
